@@ -18,7 +18,7 @@ A fully responsive **WordPress-based supermarket website** featuring:
 👉 [Visit the Live Site](https://xtramarket.infinityfree.me/)  
 
 ## 🔗 LinkedIn Post  
-👉 [Check my LinkedIn Post](PASTE-YOUR-LINKEDIN-POST-LINK-HERE)  
+👉 [Check my LinkedIn Post](https://www.linkedin.com/posts/gamage-udara-dilshan_wordpress-webdesign-supermarketwebsite-activity-7366349522186223616-dMGa?utm_source=share&utm_medium=member_desktop&rcm=ACoAAEdUtYIBjz7k0IOVrbQVYknLJ9aUcVJE_gA)  
 
 
 ---
